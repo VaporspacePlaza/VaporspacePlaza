@@ -19,8 +19,8 @@
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
-  <p align="center"> 〘 ♯ Other Disorders/Disabilities ♭ 〙
-  <p align="center"> . Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Attachment Issues .
+  <p align="center"> 〘 ♯ Other Disorders/Disabilities/Issues ♭ 〙
+  <p align="center"> . Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety .
 
 <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
@@ -35,7 +35,7 @@
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
  <p align="center"> 〘 ♯ DNI ♭ 〙
- <p align="center"> . Basic DNI, Jimmy ponies, Getaway Fans/ponies, SA "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA } .
+ <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA } .
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
