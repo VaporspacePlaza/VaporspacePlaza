@@ -35,7 +35,7 @@
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
  <p align="center"> 〘 ♯ DNI ♭ 〙
- <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/Acro/tetrachromiac and anyone that has to do w/ them { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more } .
+ <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/tetrachromiac and anyone that has to do w/ them { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more } .
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
