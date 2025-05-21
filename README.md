@@ -20,7 +20,7 @@
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
   <p align="center"> 〘 ♯ Other Disorders/Disabilities/Issues ♭ 〙
-  <p align="center"> . Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety .
+  <p align="center"> . Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety, ADHD, May or May not have Autism .
 
 <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
