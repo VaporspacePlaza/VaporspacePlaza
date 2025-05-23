@@ -5,7 +5,7 @@
   <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
   
  <p align="center">  〘 ♯ Collective names ♭ 〙
- <p align="center"> . Vaporspace, Kai .
+ <p align="center"> . Vaporspace, Kai, Arlo, Maxxie .
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
