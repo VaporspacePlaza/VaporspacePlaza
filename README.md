@@ -5,7 +5,7 @@
   <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
   
  <p align="center">  〘 ♯ Collective names ♭ 〙
- <p align="center"> . Vaporspace, Arlo, Maxxie/Max .
+ <p align="center"> . Vaporspace, Arlo, Maxxie/Max, Kai can be used, but no longer preferred .
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
