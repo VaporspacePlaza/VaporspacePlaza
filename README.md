@@ -5,7 +5,7 @@
   <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
   
  <p align="center">  〘 ♯ Collective names ♭ 〙
- <p align="center"> . Vaporspace, Arlo, Maxxie/Max, Kai can be used, but no longer preferred .
+ <p align="center"> . Vaporspace, Arlo, Max/Maxxie, Ollie .
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
@@ -20,7 +20,7 @@
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
   <p align="center"> 〘 ♯ Other Disorders/Disabilities/Issues ♭ 〙
-  <p align="center"> . Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety, ADHD, May or May not have Autism .
+  <p align="center"> . Tics { Not Tourettes }, Echolalia, Crohn's Disease { Diagnosed }, Asthma, Attachment Issues, Gains crushes/feelings easily, Mood swings/Depression, Anxiety/Social Anxiety, ADHD, May or May not have Autism .
 
 <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
