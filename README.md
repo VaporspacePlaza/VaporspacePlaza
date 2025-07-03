@@ -1,6 +1,6 @@
 <p align="center">   〘 ♬ Vaporspace Intro ! ♬ 〙
   
- <p align="center"> . Hi! We're the Vaporspace Plaza, an 18+ OSDD{-1B} sys! .
+ <p align="center"> . Hi! We're the Vaporspace Plaza, an 18+ OSDD{-1B} sys with bad memory and collective memory ! .
 
   <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
   
@@ -35,7 +35,7 @@
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
  <p align="center"> 〘 ♯ DNI ♭ 〙
- <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies { Transformers }, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/wobblepups and anyone that has to do w/ them { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more }, Doll Disease/sinfulspire GOD THEY CHANGE THEIR PROFILE N SHIT SM { DID/System faker that also fakes other symptoms/disorders and has done a lot of uncomfortable things and a bunch of other stuff. Ask on Disc for info }, CULTIST Satanists, IRLs .
+ <p align="center"> . Basic DNI, Jimmy Fans/ponies { Mouthwashing }, Getaway Fans/ponies { Transformers }, SA/Rape "jokes" { As in; "I'm gonna touch you" and shit like that. it's not funny and it's not something to joke about. We are victims to SA }, Ztar/wobblepups and anyone that has to do w/ them { An ex-psys of ours who SA'd our Medic. Ask on Disc if you wanna know more }, Doll Disease/sinfulspire GOD THEY CHANGE THEIR PROFILE N SHIT SM { DID/System faker that also fakes other symptoms/disorders and has done a lot of uncomfortable things and a bunch of other stuff. Ask on Disc for info }, CULTIST Satanists, IRLs, { MOST } DSMP enjoyers .
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
