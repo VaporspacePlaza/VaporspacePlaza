@@ -25,7 +25,7 @@
 <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
   <p align="center"> 〘 ♯ Interests / Fandoms ♭ 〙
- <p align="center"> . Transformers, TF2, Dinosaurs, Roblox { GRACE, Forsaken, Pressure, etc }, MLP, Furry, Drawing, PonyTown, Lion Dances, The Interview With The Vampire, Music, Jojo's, Madness Combat, Aesthetics { Goth/Pastel Goth/Gothic Lolita/etc, Vaporwave, Liminal Spaces, etc }, Pokemon, CoryxKenshin, YUB, Caddicarus, Cookie Run Kingdom, Demon Slayer, DBZ, Layze, Brave Police J-Decker, Metal Cardbot, Hellaverse, etc .
+ <p align="center"> . Transformers, TF2, Dinosaurs, Roblox { GRACE, Forsaken, Pressure, etc }, MLP, Furry, Drawing, PonyTown, Lion Dances, Interview With The Vampire, Music, Jojo's, Madness Combat, Aesthetics { Goth/Pastel Goth/Gothic Lolita/etc, Vaporwave, Liminal Spaces, etc }, Pokemon, CoryxKenshin, YUB, Caddicarus, Cookie Run Kingdom, Demon Slayer, DBZ, Layze, Brave Police J-Decker, Metal Cardbot, Hellaverse, etc .
 
  <p align="center"> ◇●○◆○●◇●○◆○●◇◇●○◆○●◇●○◆○●◇
 
